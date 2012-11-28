@@ -1,3 +1,3 @@
-WIPSY King 
+WIPSY Kinga
 =
 ---
